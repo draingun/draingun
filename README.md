@@ -22,7 +22,7 @@
 
   <details><summary><i>about me</i></summary>
 
-  **Ari** / el / Claire / steph
+  **Ari**⠀ ⠀ /⠀ el ⠀/⠀ steph
 
 <img width="119" height="20" alt="27260357" src="https://github.com/user-attachments/assets/30437154-80ff-41f0-9e4f-f36b6ba084b8" /> 
 
@@ -32,6 +32,7 @@
 
 
 I love Pierce the Veil, Fallout Boy, and Sleeping With sirens.
+[click here for more info](https://rentry.co/piercetthevic)
 </details>
   
 
@@ -43,7 +44,9 @@ I love Pierce the Veil, Fallout Boy, and Sleeping With sirens.
   
   [old rentry](https://rentry.co/purplebunni)
   
-  [current rentry](https://rentry.co/rex_sploded)
+  [yume rentry](https://rentry.co/rex_sploded)
+ 
+  [Current rentry](https://rentry.co/piercetthevic)
   
  [old strawpage](https://youbettersignthis.straw.page/)
  
