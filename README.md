@@ -1,3 +1,5 @@
+<img width="720" height="196" alt="17897653445145760099331177376513" src="https://github.com/user-attachments/assets/7b056b8b-18ea-4aa5-a7d7-f070a94213c1" />
+
 
 
 
@@ -5,7 +7,7 @@
 <p align="center"><a href="https://hits.sh/github.com/wetcigarettesNremorse/hits/"><img alt="Hits" src="https://hits.sh/github.com/wetcigarettesNremorse/hits.svg?style=for-the-badge&label=DMG%20mitigated&color=4e7a92&labelColor=007ec6"/></a>
 
 
-<p align="center">❝𝖥𝗅𝖺𝗌𝗁 𝖿𝗅𝗈𝗈𝖽!❞
+<p align="center">❝ 𝘈𝘯𝘨𝘦𝘭 𝘢𝘵 𝘺𝘰𝘶𝘳 𝘴𝘩𝘰𝘶𝘭𝘥𝘦𝘳!❞
 
 <details>
   <summary><i>info</i></summary>
@@ -72,5 +74,5 @@ under 13
 over 20
 </details>
 
-<img width="736" height="552" alt="17871943971901079585039703177774" src="https://github.com/user-attachments/assets/91497ebf-1c20-4080-9f34-92689a0b191e" />
+<img width="512" height="512" alt="tumblr_ad7570789d22e9dea41aab1314cd082c_5ccb3278_540" src="https://github.com/user-attachments/assets/2238a25a-3699-443c-95a3-6f52b6ca6fb8" />
 
