@@ -58,6 +58,8 @@ I love Pierce the Veil, Fallout Boy, and Sleeping With sirens.
  [old strawpage](https://youbettersignthis.straw.page/)
  
   [current strawpage](https://sunkissedlight.straw.page/)
+ 
+  [dandy's world strawpage](https://bassieblo0m.straw.page/)
   
   [guns.lol](https://guns.lol/wetcigarettes)
   ALTS : [spam follow](https://github.com/sexyrexyy)
