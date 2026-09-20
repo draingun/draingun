@@ -1,4 +1,4 @@
-<img width="1600" height="400" alt="transparent-text-gif (1)" src="https://github.com/user-attachments/assets/07e933e0-78ff-4505-9597-e873c9d01fef" />
+
 
 
 
@@ -9,11 +9,12 @@
 
 <p align="center"><a href="https://hits.sh/github.com/wetcigarettesNremorse/hits/"><img alt="Hits" src="https://hits.sh/github.com/wetcigarettesNremorse/hits.svg?style=for-the-badge&label=DMG%20mitigated&color=4e7a92&labelColor=007ec6"/></a>
 
+<p align="center"><img width="143" height="134" alt="913fd5c3" src="https://github.com/user-attachments/assets/de74c115-b19c-46ca-b57d-78d4e20b1485" />
 
 <p align="center">❝ 𝘈𝘯𝘨𝘦𝘭 𝘢𝘵 𝘺𝘰𝘶𝘳 𝘴𝘩𝘰𝘶𝘭𝘥𝘦𝘳!❞
 
 <details>
-  <summary><i>info</i></summary>
+  <summary><i>𝓘𝓷𝓯𝓸</i></summary>
   $${\color{lightblue} \text {𝘐𝘯𝘵 𝘧𝘳𝘦𝘦𝘭𝘺! 𝘐𝘮 𝘢𝘧𝘬 𝘴𝘮 𝘴𝘰 𝘐 𝘮𝘪𝘨𝘩𝘵 𝘯𝘰𝘵 𝘴𝘦𝘦 𝘸𝘩𝘪𝘴𝘱𝘴}}$$ 
  
  
@@ -28,7 +29,7 @@
 
 
   
-  <details><summary><i>about me</i></summary>
+  <details><summary><i>𝓐𝓫𝓸𝓾𝓽   me</i></summary>
 
   <b>Ari</b>  *or* $${\color{#afeeee} \text {el ⠀/⠀ steph}}$$
 
@@ -44,7 +45,7 @@ I love Pierce the Veil, Fallout Boy, and Sleeping With sirens.
 </details>
   
 
-  <details><summary><i>links</i></summary>
+  <details><summary><i>li𝓷𝓴𝓼</i></summary>
   
   [ata 1](https://doyoulikeyourtacoshardorsoft.atabook.org/?page=1)
   
@@ -68,7 +69,7 @@ I love Pierce the Veil, Fallout Boy, and Sleeping With sirens.
 [diff theme](https://github.com/heliophiliacursed)</details>
 
   
-<details><summary><i>DNI list</i></summary>
+<details><summary><i>D𝓝I list</i></summary>
 $${\color{#afeeee} \text {*BASIC* \ DNI, \ oomfs \ I \ haven't \ talked}}$$ $${\color{#afeeee} \text { to \ in \ 1-2 \ months,  \ clingy \ ppl,}}$$
 
 botsplode & lifeweaver/mercy x wuyang shippers, 
