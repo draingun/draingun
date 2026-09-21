@@ -25,6 +25,8 @@
 
   I may be online and not int,   
   please keep in mind I have other friends.
+  
+  guys dont be afraid to leave / change fandom's or talk to ur other friends around me pls I don't bite !!!! 
 </details>
 
 
@@ -66,9 +68,14 @@ I love Pierce the Veil, Fallout Boy, and Sleeping With sirens.
   [guns.lol](https://guns.lol/wetcigarettes)
   ALTS : [spam follow](https://github.com/sexyrexyy)
 
-[diff theme](https://github.com/heliophiliacursed)</details>
+[diff theme](https://github.com/heliophiliacursed)
 
-  
+ <img width="1280" height="427" alt="17899499620876657505274502104492" src="https://github.com/user-attachments/assets/f22e9882-3a36-47e8-bcbb-932769d7459a" />
+
+</details>
+
+
+ 
 <details><summary><i>D𝓝I list</i></summary>
 $${\color{#afeeee} \text {*BASIC* \ DNI, \ oomfs \ I \ haven't \ talked}}$$ $${\color{#afeeee} \text { to \ in \ 1-2 \ months,  \ clingy \ ppl,}}$$
 
