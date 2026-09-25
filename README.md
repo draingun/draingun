@@ -9,7 +9,7 @@
 
 <p align="center"><a href="https://hits.sh/github.com/wetcigarettesNremorse/hits/"><img alt="Hits" src="https://hits.sh/github.com/wetcigarettesNremorse/hits.svg?style=for-the-badge&label=DMG%20mitigated&color=4e7a92&labelColor=007ec6"/></a>
 
-<p align="center"><img width="143" height="134" alt="913fd5c3" src="https://github.com/user-attachments/assets/de74c115-b19c-46ca-b57d-78d4e20b1485" />
+
 
 <p align="center">❝ 𝘈𝘯𝘨𝘦𝘭 𝘢𝘵 𝘺𝘰𝘶𝘳 𝘴𝘩𝘰𝘶𝘭𝘥𝘦𝘳!❞
 
