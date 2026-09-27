@@ -49,9 +49,9 @@ I love Pierce the Veil, Fallout Boy, and Sleeping With sirens.
 
   <details><summary><i>li𝓷𝓴𝓼</i></summary>
   
-  [ata 1](https://doyoulikeyourtacoshardorsoft.atabook.org/?page=1)
   
-  [ata 2](https://rexlovesya.atabook.org/?page=1)
+    
+  [ata](https://cecilcanthelpit.atabook.org)
   
   [old rentry](https://rentry.co/purplebunni)
   
