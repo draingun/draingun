@@ -11,7 +11,7 @@
 
 
 
-<p align="center">❝ 𝘈𝘯𝘨𝘦𝘭 𝘢𝘵 𝘺𝘰𝘶𝘳 𝘴𝘩𝘰𝘶𝘭𝘥𝘦𝘳!❞
+<p align="center">$${\color{#035da7} \text {❝}}$$ $${\color{#f0ffff} \text {'gonna}}$$ $${\color{#bcf3ec} \text {buy}}$$ $${\color{#6bdde3} \text {a}}$$ $${\color{#0b7ab4} \text {cheap}}$$ $${\color{#035da7} \text {bouquet}}$$ $${\color{#bcf3ec} \text {❞}}$$
 
 <details>
   <summary><i>𝓘𝓷𝓯𝓸</i></summary>
