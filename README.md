@@ -19,7 +19,7 @@
  
  
 
-  <b>c+h accepted!!</b> just please don't RP or copy
+  <b>c+h accepted!!(unless dni in name)</b> just please don't RP or copy
  
   YES you can become my oomf YES bmf
 
@@ -77,7 +77,7 @@ I love Pierce the Veil, Fallout Boy, and Sleeping With sirens.
 
  
 <details><summary><i>D𝓝I list</i></summary>
-$${\color{#afeeee} \text {*BASIC* \ DNI, \ oomfs \ I \ haven't \ talked}}$$ $${\color{#afeeee} \text { to \ in \ 1-2 \ months,  \ clingy \ ppl,}}$$
+$${\color{#afeeee} \text {*BASIC* \ DNI, \ oomfs \ I \ haven't \ talked}}$$ $${\color{#afeeee} \text { to \ in \ 4-6 \ months, (unless \ your \ on \ a \ break) \ clingy \ ppl,}}$$
 
 botsplode & lifeweaver/mercy x wuyang shippers, 
 
